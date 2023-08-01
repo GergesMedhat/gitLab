@@ -1,1 +1,1 @@
-![alt text](https://images.app.goo.gl/UFnKJ6VnaKnKVRrM7)
+![alt text](C:\Users\gerge\OneDrive\Desktop\git1\read-me-magazine-logo-png-transparent.png)
